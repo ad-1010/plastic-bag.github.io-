@@ -1,4 +1,5 @@
-Hello, my name is plastic bag. 
+Hello, my name is plastic bag.
 Welcome to visit me. 
-Are you curious about the world I see?
-Use your eyes to see my world.
+Are you curious about the world I see? 
+Lend you my eyes. 
+Go see my world.
